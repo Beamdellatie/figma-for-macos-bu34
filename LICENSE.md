@@ -1,4 +1,4 @@
-
+professional Figma for macOS Plugin | gradient maps + cloud sync offers the most advanced Figma for macOS plugin, with gradient maps and cloud sync. Ideal for professional
 
 
 
